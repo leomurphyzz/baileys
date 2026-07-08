@@ -1,4 +1,4 @@
-# WhatsApp Baileys Obito
+# WhatsApp Baileys Leoooo
 
 <p align="center">
   <img src="https://files.catbox.moe/e76wjf.png" alt="Thumbnail" />
